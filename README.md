@@ -1,2 +1,2 @@
 # silogan-ledger
-varsity players sa silogan mi madii ledger
+varsity players sa silogan ni madii ledger
